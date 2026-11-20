@@ -1,2 +1,0 @@
-# UAS-Bayangan-SBD
-PengerjaanUASBayanganSBDAzwarRiansyah
